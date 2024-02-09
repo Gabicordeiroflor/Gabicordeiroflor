@@ -1,13 +1,15 @@
-# Gabi 🦋 
+# Gabi🌺
 
 ## Meus gostos:
-Ler livros 📕
+Ler livros📕
 
-Ver séries 📺
+Ver séries/ filmes📺
 
-Musica 🎶
+Escutar Musica🎶
 
-Degustar da culinaria 🍲
+Degustar da culinaria🍲
+
+Fazer Skin Care💄
 
 ## O que quero fazer:
  
