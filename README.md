@@ -11,13 +11,13 @@ Degustar da culinaria 🍲
 
 ## O que quero fazer:
  
-- 🪡Atualmente quero cursar moda...
+- 👩🏾‍🏫Atualmente quero cursar pedagogia...
 - 🌎Viajar pelo mundo... 
 - 💵🧘Ser uma pessoa de bem com a vida...
 
 **Pode me encontrar**
 
-- @gabi_bibi_gabias 
+- @gabi_bibi_flor
 - gabriela.florencio@escola.pr.gov.br
 
 <!---
